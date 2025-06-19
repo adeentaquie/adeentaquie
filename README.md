@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi👋 My name is Adeen Akhter Taquie and I'm a CS Major at FAST-NU lahore
+Hi👋 My name is Adeen Akhter Taquie and I'm a CS Graduate From FAST-NU lahore
 
 
 ## 🌐 Socials:
